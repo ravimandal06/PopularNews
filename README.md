@@ -1,2 +1,0 @@
-# PopularNews
- PopularNews Simple Apk 
